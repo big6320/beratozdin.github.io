@@ -1,1 +1,0 @@
-# beratozdin.github.io
